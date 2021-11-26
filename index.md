@@ -1,1 +1,0 @@
-甘霖娘Javascript好难啊
